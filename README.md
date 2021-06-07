@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @danielk107
-- 👀 I’m interested in python
+- 👀 I’m interested in web development
 - 🌱 I’m currently learning python
 - 📫 How to reach me? My twiiter of course! (https://twitter.com/Danielk06512583)

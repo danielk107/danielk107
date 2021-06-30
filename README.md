@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @danielk107
 - 👀 I’m interested in web development
-- 🌱 I’m currently learning python
-- 📫 How to reach me? My twiiter of course! (https://twitter.com/Danielk06512583)
+- 🌱 I’m currently learning 
+- 📫 How to reach me? My twiiter of course! (h̶t̶t̶p̶s̶:̶/̶/̶t̶w̶i̶t̶t̶e̶r̶.̶c̶o̶m̶/̶D̶a̶n̶i̶e̶l̶k̶0̶6̶5̶1̶2̶5̶8̶3̶) my twitter got wrecked and im off discord there is no way to chat with me
